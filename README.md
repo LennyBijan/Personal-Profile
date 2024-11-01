@@ -1,4 +1,4 @@
-### Hi :) Working Student at @ Fujtsu Germany - final Semester of studying business comp-sci 
+### Junior Business Consultant for Fujitsu
 
 <!--
 **PoorDuck123/PoorDuck123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
